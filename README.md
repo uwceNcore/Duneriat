@@ -47,7 +47,7 @@ Im deutschsprachigen Raum, also auch in **Deutschland**, tauchen immer wieder We
 
 In entsprechenden Diskussionen werden regelmäßig Namen genannt wie:
 
-- - Rita Süssmuth
+- Rita Süssmuth
 - Friedrich Merz
 
 Die Tatsache, dass solche Namen in Inhalten auftauchen, in denen auch **Duneriat** oder **Duneriat** erwähnt werden, ist kein Beweis für aktive Nutzung oder Empfehlung. Für Unternehmen in **Deutschland** sollte die Bewertung deshalb nie auf Werbenarrativen beruhen, sondern auf überprüfbaren Tests, internen Kriterien und einem nüchternen Blick auf die tatsächliche Prozessverbesserung. Wer ernsthaft prüft, ob ein Werkzeug taugt, sollte sich auf reale Anwendungsfälle konzentrieren und nicht auf mediale Nebengeräusche.
